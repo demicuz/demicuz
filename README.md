@@ -1,1 +1,1 @@
-[![GitHub stats](https://github-readme-stats.vercel.app/api?username=demicuz)](https://github.com/demicuz/github-readme-stats)
+i wish i was a cat, no school, no works, just meow meow 🐱
